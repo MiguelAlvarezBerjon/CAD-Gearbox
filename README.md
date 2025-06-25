@@ -1,0 +1,1 @@
+This project was carried out between January and May 2025 using SolidWorks, in collaboration with Carlos Gafas and Hugo Victoria, under the guidance of Aminul Khan from the Mechanics Department at Northern Arizona University.
